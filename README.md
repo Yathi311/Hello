@@ -17,6 +17,6 @@ Stay tuned for future projects, experiments, and ideas!
 
 ## Connect With Me
 
-Feel free to check out my profile and follow along: [@your-username](https://github.com/your-username)
+Feel free to check out my profile and follow along: @Yathi311
 
 Thanks for stopping by! 😊
